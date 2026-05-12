@@ -1,4 +1,4 @@
-# 
+# vip Plugin for Wave for PC | Wave for Windows - bank-reconciliation and recurring-billing offers the most advanced Wave for PC | Wave for Windows plugin, with bank-reconciliation
 
 
 
